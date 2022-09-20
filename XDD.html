@@ -1,0 +1,11 @@
+<!DOCTYPE html>
+<html>
+<head>
+	<meta charset="utf-8">
+	<meta name="viewport" content="width=device-width, initial-scale=1">
+	<title>Тужик ПОРНО</title>
+</head> 
+<body> 
+<p>ТУЖИК ПОРНО СМАЧНО 2023</p>
+</body>
+</html>
